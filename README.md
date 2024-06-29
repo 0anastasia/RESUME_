@@ -1,5 +1,3 @@
-# RESUME
-
 # Resume
 
 ## Anastasia Chashchina 
