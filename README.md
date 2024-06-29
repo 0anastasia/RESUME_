@@ -12,7 +12,7 @@
 
 +7 (919) 937-77-**  
 
-<a href='t.me/chanast352'>@chanast352</a>  - telegram
+<a href='https://t.me/chanast352'>@chanast352</a>  - telegram
 
 <p align='center'>
    How to reach me: <a href='mailto:anastasia.chashch@mail.ru'>anastasia.chashch@mail.ru</a>
